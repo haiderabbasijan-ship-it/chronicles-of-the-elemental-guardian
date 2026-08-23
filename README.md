@@ -1,4 +1,3 @@
-# Captain-Cosmics-Rocketship-Adventure
 # Chronicles of the Elemental Guardian ⚔️🔥💧
 
 ## Overview
